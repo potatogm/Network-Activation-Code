@@ -1,1 +1,3 @@
-2022-05-17 09:03:32.116027226 +0000 UTC m=+2.573365497
+# Network Activation Code
+* foo
+* bar
