@@ -1,7 +1,7 @@
 # Network Activation Code
-* wmcwi-yop_RejCcqAw
-* ptDwqOyop_ReKWIqAw
-* PBzVkOyop_RfSHIqAw
-* nQy4muyop_RfSNAqAw
-* pT1AG-yop_RfMIUqAw
-* RWQRL-yop_ZbTr4qAw
+* taZGAuyop_ReOFkqAw
+* UChaYeyop_ReDX0qAw
+* tNB02Oyop_RfMnYqAw
+* vc1W9Oyop_ZeqJkqAw
+* h3g1bOyop_Zf_5cqAw
+* pWxq3eyop_ZbTr4qAw
