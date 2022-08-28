@@ -1,6 +1,9 @@
 # Network Activation Code
-* tRaPV-yop_ReDUoqAw
-* uZ3V5Oyop_ZeliIqAw
-* 01GRGeyop_Ze5Q0qAw
-* BkGnyOyop_Zf6MMqAw
-* Dza_qeyop_ZffAoqAw
+* wjIvuuyop_ReDUoqAw
+* AEf6Tuyop_ReAxkqAw
+* 0XW7x-yop_Zeo7cqAw
+* 8HDw1uyop_Zeu7QqAw
+* yFOcaeyop_ZeTBAqAw
+* PIB55eyop_ZfrWYqAw
+* 94GNO-yop_Za-bwqAw
+* D26xbOyop_ZbGz4qAw
