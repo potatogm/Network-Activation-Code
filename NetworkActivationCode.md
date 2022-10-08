@@ -1,6 +1,13 @@
 # Network Activation Code
-* 6Ij2lOyop-koDMkqAw
-* dLQdzuyop-kq_28qAw
-* QJjmcuyop_ZzpzoqAw
-* PxBh-uyop_ZzcLwqAw
-* C0cC7eyop9IDc54qAw
+* UoakCeyop-koIUEqAw
+* pPcU5-yop-ko9lAqAw
+* WILAcuyop-kodgwqAw
+* dNhgSOyop-kq7EoqAw
+* mh1vteyop-kGOTIqAw
+* W6lG_eyop_ZzpzoqAw
+* 700dtOyop_ZzcLwqAw
+* 6B93ieyop9Cx1KcqAw
+* rknUluyop9Cx0R8qAw
+* fDhP8uyop9JV4WoqAw
+* XY7kkuyop9JV8_8qAw
+* -Lkpuuyop9JVzz4qAw
